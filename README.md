@@ -92,3 +92,8 @@
 
 
 [Таблица задач](https://docs.google.com/spreadsheets/d/1T2Fwhqz330lJm_u9Q_x4WXdaUo9IYAJOTVtL2FbRbL4/edit?gid=0#gid=0)
+
+# Фото и видео материалы 
+####
+![image](https://github.com/user-attachments/assets/e5ec08c2-ffc9-4deb-8061-dfecae1839a3)
+https://vk.com/video247735063_456242816?list=44718bfd8f0ca39e31
