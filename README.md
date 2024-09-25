@@ -95,6 +95,10 @@
 
 [Таблица задач](https://docs.google.com/spreadsheets/d/1T2Fwhqz330lJm_u9Q_x4WXdaUo9IYAJOTVtL2FbRbL4/edit?gid=0#gid=0)
 
+# Спецификация и техническая документация
+####
+![image](https://github.com/user-attachments/assets/e427d4fc-27b2-4215-85d1-71d62f385dac)
+
 # Фото и видео материалы 
 ####
 ![image](https://github.com/user-attachments/assets/e5ec08c2-ffc9-4deb-8061-dfecae1839a3)
