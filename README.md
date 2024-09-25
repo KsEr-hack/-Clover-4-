@@ -96,4 +96,12 @@
 # Фото и видео материалы 
 ####
 ![image](https://github.com/user-attachments/assets/e5ec08c2-ffc9-4deb-8061-dfecae1839a3)
+
+![image](https://github.com/user-attachments/assets/998b7d60-408b-4595-a1c3-13ac91e7011c)
+
+
 https://vk.com/video247735063_456242816?list=44718bfd8f0ca39e31
+
+https://vk.com/video247735063_456242833?list=90cdd0cefb23a03d14
+
+https://vk.com/video247735063_456242834?list=b5060d3c5301774da1
