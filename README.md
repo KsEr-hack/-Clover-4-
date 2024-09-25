@@ -113,8 +113,6 @@
 
 ![image](https://github.com/user-attachments/assets/c0d43a4a-ce66-4243-b9ab-9379a4ac5423)
 
-https://vk.com/video247735063_456242816?list=44718bfd8f0ca39e31
+[Тестирование системы с насосом](https://vk.com/video247735063_456242833?list=90cdd0cefb23a03d14)
 
-https://vk.com/video247735063_456242833?list=90cdd0cefb23a03d14
-
-https://vk.com/video247735063_456242834?list=b5060d3c5301774da1
+[Тестирование системы с электромагнитом](https://vk.com/video247735063_456242834?list=b5060d3c5301774da1)
