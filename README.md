@@ -99,6 +99,13 @@
 
 ![image](https://github.com/user-attachments/assets/998b7d60-408b-4595-a1c3-13ac91e7011c)
 
+![image](https://github.com/user-attachments/assets/29e7a8e2-c3d2-43f1-8b47-29759ea94f70)
+
+![image](https://github.com/user-attachments/assets/38b35afd-9d74-487f-aaea-4a24f0ca0b31)
+
+![image](https://github.com/user-attachments/assets/dde4efe1-0a2a-436f-893b-ac486b0b587d)
+
+![image](https://github.com/user-attachments/assets/c0d43a4a-ce66-4243-b9ab-9379a4ac5423)
 
 https://vk.com/video247735063_456242816?list=44718bfd8f0ca39e31
 
