@@ -130,6 +130,4 @@
 
 
 
-[Тестирование системы с насосом](https://vk.com/video247735063_456242833?list=90cdd0cefb23a03d14)
-
-[Тестирование системы с электромагнитом](https://vk.com/video247735063_456242834?list=b5060d3c5301774da1)
+https://drive.google.com/drive/folders/1cG_2uMOp1vWziUSra0NyGZBvhouN4AEk?usp=sharing
