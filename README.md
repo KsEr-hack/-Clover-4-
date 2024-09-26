@@ -128,7 +128,6 @@
 
 ![image](https://github.com/user-attachments/assets/13bf8b88-6e59-46d5-bc3e-0236523c3e6c)
 
-![image](https://github.com/user-attachments/assets/2b2b4723-1b14-45c7-9c36-d87d8aea0624)
 
 
 [Тестирование системы с насосом](https://vk.com/video247735063_456242833?list=90cdd0cefb23a03d14)
