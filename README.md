@@ -131,3 +131,5 @@
 
 
 https://drive.google.com/drive/folders/1cG_2uMOp1vWziUSra0NyGZBvhouN4AEk?usp=sharing
+# Презентация
+https://tome.app/hackkkkkkkkkk/engineering-scoping-document-copy-cm1k0idqy00n5dik8orgvnjfu
